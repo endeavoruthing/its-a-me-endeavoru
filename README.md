@@ -10,4 +10,4 @@ Welcome to my random repository.
 
 
 ## My OC
-![OC](Untitled_0000-12-14_2026062012121755.jpg)
+![OC](Untitled210_0000-12-14_20260620121755)
