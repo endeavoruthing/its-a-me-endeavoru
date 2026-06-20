@@ -1,2 +1,2 @@
 # its-a-me-endeavoru
-mah first repo sudo teehee
+thiz is gonna be le repo for me files idunno ehheheheheh
